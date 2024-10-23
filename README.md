@@ -1,1 +1,2 @@
 # El-impacto-global-de-los-mercados-asi-ticos
+Asia, liderada por China, India y Japón, es ahora un actor clave en la economía mundial. Estas naciones representan el 35% del PIB global y son pioneras en innovación tecnológica, desde la inteligencia artificial hasta la manufactura avanzada. Sin embargo, la región enfrenta desafíos como las tensiones comerciales y la necesidad de mejorar su infraestructura para mantener su posición como pilar fundamental en la economía global.
